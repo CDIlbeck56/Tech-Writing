@@ -7,7 +7,7 @@ If Progesterone is high it indictes precnancy
 Relaxin is being porduced
 If there is not been a embryo released and fertilized then prostoglandin is released
 It regresses the corpus luteum and lowers progesterone production
-The follicle the Develops
+The follicle then Develops
 Estrogen rises
 Lutenizing Hormone is released
 Ovulation Occurs
